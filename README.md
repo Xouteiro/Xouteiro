@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 💻Informatics and Computing Engineering<br>📍  Porto, Portugal<br>⚡Track & Field Athlete
 
 
